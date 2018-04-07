@@ -15,13 +15,9 @@ And whilst, for reasons well see later, Christian’s today do not need to pract
 
 The opposite is true. Leviticus has a lot to offer us if we are willing to do the hard work required to understand both the ‘What’ and the ‘Why’ of perhaps one of the most foreign feeling books in the Bible. And what it has to say about Jesus death and resurrection on our behalf.
 
-Today, as we continue our ‘Expected?’ series exploring the cross in the Old Testament, we are going to zero in on one chapter Leviticus.
+Today, we are going to zero in on one chapter Leviticus.
 
-If you are picking up the series today for the first time, then you’ll need to know that over the last three weeks we’ve been exploring some of the ways that the Old Testament points forward to Jesus death and resurrection.
-
-First John walked us through the emotional account of Abraham and Isaac in Genesis 22. Shaun helped us understand the importance of the God promising to reduce his people from slavery in Exodus 6. And Keith explained the significance of the Passover in Exodus 12.
-
-Today we turn to the Day of Atonement in Leviticus 16. A monumental event for the people of Israel and the writers for the New Testament. We going to look at it by focusing on the main events of the ritual **(Slide)**:
+Specicially, the Day of Atonement in Leviticus 16. A monumental event for the people of Israel and the writers for the New Testament. We going to look at it by focusing on the main events of the ritual **(Slide)**:
 
 1.  *The High Priest goes in… (Lev 16: 1-14)*
 2.  *Sacrifices are made… (Lev 16: 15-22)*

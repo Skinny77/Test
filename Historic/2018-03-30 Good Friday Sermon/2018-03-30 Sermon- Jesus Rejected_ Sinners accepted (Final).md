@@ -54,7 +54,7 @@ So far in this section, Matthew has described to us three groups of the people: 
 
 You see the each of the four gospel writers - Matthew, Mark, Luke, and John, describe these events detail. Why is that? One reason is they want to underline Jesus innocence. But what is something else is going on here?
 
-The events from Jesus arrest in the Garden of Gethsemane up until the his sentencing and crucifixion provide also provide a shocking window into how we naturally responds to God. Remember, at the centre all of this scheming, deceving, rejecting, betraying, political manuvouring, and mockery is not a nice bloke who did some nice things for people in bottom runs of society. This is happening to the Son of God, the creator of the universe, the Lord of Heaven and Earth.
+The events from Jesus arrest in the Garden of Gethsemane up until the his sentencing and crucifixion also provide a shocking window into how we naturally responds to God. Remember, at the centre all of this scheming, deceving, rejecting, betraying, political manuvouring, and mockery is not a nice bloke who did some nice things for people in bottom runs of society. This is happening to the Son of God, the creator of the universe, the Lord of Heaven and Earth.
 
 The truth is that our lives are unacceptable to God because in our hearts we are by nature no different from the religious leaders, from Pilate, or the crowd. Left to our own devices we’ll act just like them.
 
@@ -66,11 +66,11 @@ The truth is that our lives are unacceptable to God because in our hearts we are
 
 In his famous book, _The Cross of Christ_, John Stott writes,
 
-> The same evil passion influences our own contemporary attitudes to Jesus…  We resent his intrusions into our privacy, his demand for our homage, his expectation of our obedience. Why can’t he mind his own business, we ask petulantly, and leave us alone?
+> The same evil passion influences our own contemporary attitudes to Jesus… Why can’t he mind his own business, we ask petulantly, and leave us alone?
 >
 > To which he instantly replies that we are his business and that he will never leave us alone. So we too perceive him as a threatening rival who disturbs our peace, upsets our status quo, undermines our authority and diminishes our self-respect. We too want to get rid of him.
 
-Our lives are unacceptable to God because left to our own devices we want nothing to do with him or his Son. We have rejected God, and so he has honoured our wishes and rejected us in return.
+Our lives are unacceptable to God because left to our own devices we want nothing to do with him or his Son. Whether by action or apathy, we have rejected God and his rule. The only thing we have earnt is his judgement.
 
 But there is hope. We can still experience God’s life changing acceptance. Because **if we want to be accepted by to God, we need to trust in the one rejected by God,** and that is what we'll look at next.
 
@@ -106,17 +106,19 @@ Not only our we unacceptable, we are incapable of making ourselves acceptable to
 
 So we have a problem don't we? Naturally, we are unacceptable, with no way of making ourselves acceptable. We are not right with God. We are unrighteous, we rejection. Even if we could live perfectly from until end of our days that would not not make up for our past crimes. We’d still face God’s judgement.
 
-**We are in desperate of two things: a right standing with God not based on our own performance. And someone who can take our place on death row.**
+**So if we want to be accepted by God, we are in desperate need of two things:**
+1.   **a right standing with God not based on our own performance.**
+2.   **someone who can take our place on death row.**
 
-These verses in Matthew 27 reveal one of the most profound and amazing promises of Christianity. That on the cross, Jesus didn't simply die the death that I deserve; he also gave me the result of a life I never lived. Jesus die taking the punishment for our sinful and unacceptable live, he was rejected in our place. He took our place on death row.
+Here in Matthew 27 we see one of the most wonderful promises of Christianity. Something, I think is truly amazing. At the cross God the Father provides for both our needs. By dying on the cross, Jesus takes our spot on death row so that we can go free. He dies the death we should have died, he takes the punishment we deserve. The one who should have rejected _us_ for what we did to _him_. Instead he shows us his indescrible love for _us_, by dying in our place.
 
-But also died to make us acceptable, because he gave us his righteousness, his right standing before the Father. His perfect, acceptable life, is now our life. He was rejected so that we could be accepted.
+As if that were not enough, by trusting in his death we God gifts us the results of his perfect life. We receive the right standing before God that we so desperately need for him to accept us. A right standing that is not based on our performance - we already know that won't cut the mustard. What Jesus offers us is his own right standing, his own righteousness. Through trusting in Jesus death God is both willing and able to accept us, because he no longer sees us and our sins. Instead, he see's as if we had lived Jesus perfect life.
 
-_To put another way, were were crushed under a debt that we could never pay on our own. Jesus death didn't simply pay off our overdraft, he also made us rich.And if we have trusted in Jesus, we can come to the Father confident and assured and thankful. Knowing  we are accepted by him in a way that we could never achieve or secure on our own._
+On the cross Jesus makes it possible for us to accepted by God by providing for our two most deperate needs. A right standing before God not based on our own performance, but based on Jesus' perfect record. And someone who will take our place on death row - him..
 
-The cross doesn't just reveal to us extent of human sin and it consequences, it is shows the wonderful, bottomless depths of God's love for us. And it is this historical expression of God love, that makes Good Friday 'good'!
+Isn't that incredible? Doesn't it amaze you? Yes, the cross shows the horror of our sin, but is also shows the depths of God's love. And it is that love that makes Good Friday 'good.'
 
-Jesus was rejected so that we could be accepted. And we are willing to recognise that we live unacceptable live, to turn from that old life, and place our trust in Jesus death for our sins, we too can be accepted by God. Because if "we want a life acceptable to God, we have to trust in the one rejected by God."
+Take a moment, and let it sink in...
 
 # Why does it matter?
 
