@@ -172,7 +172,7 @@ The Lord knows that the road ahead will be hard for Jeremiah, so he follows up t
 
 When we consider all that Jeremiah will endure throughout his life it is hard not to think of Jesus. Misunderstood by rulers, opposed by the religious establishment, and rejected by his own people. Along with all the might of Satan himself, they fought against him and for a time it looked like the succeeded. They hung him on a cross, left him to die, and then sealed his body in a tomb.
 
-But Jesus was adamant from the beginning that as foolish as it sounded this was his mission from the start. His death would pay the price for our sin and bring life and hope to his people. As foolish as the cross looked, it wasn't the end. Jesus rose again in victory three days later, breaking the curse of death and securing eternal life of us, forever.
+But Jesus was adamant from the beginning that as foolish as it sounded this was his mission all along. His death would pay the price for our sin and bring life and hope to his people. As foolish as the cross looked, it wasn't the end. Jesus rose again in victory three days later, breaking the curse of death and securing eternal life of us, forever.
 
 And **in Matthew 28:16-20 Jesus gives us, his people, a mission, to share this news with everyone everywhere.** To go and tell what he has done and why people need to turn from sin and trust in him. And Like Jeremiah's mission, many consider our mission a fools errand.
 
